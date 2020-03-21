@@ -13,4 +13,4 @@ Connect with me on LinkedIn: https://www.linkedin.com/in/manishvirgat/
 
 Read my blogs: https://medium.com/@manish.virgat
 
-Follow me on Twitter: https://twitter.com/the_m_virgat
+Follow me on Twitter: https://twitter.com/manish_virgat
