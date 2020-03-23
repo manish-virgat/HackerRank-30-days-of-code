@@ -12,5 +12,3 @@ My HackerRank profile: https://www.hackerrank.com/V4mp1r3
 Connect with me on LinkedIn: https://www.linkedin.com/in/manishvirgat/
 
 Read my blogs: https://medium.com/@manish.virgat
-
-Follow me on Twitter: https://twitter.com/manish_virgat
