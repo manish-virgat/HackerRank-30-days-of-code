@@ -10,5 +10,3 @@ Note: Only use it for hint purpose, don't copy-paste these. Leave a Star if you 
 My HackerRank profile: https://www.hackerrank.com/V4mp1r3
 
 Connect with me on LinkedIn: https://www.linkedin.com/in/manishvirgat/
-
-Read my blogs: https://medium.com/@manish.virgat
